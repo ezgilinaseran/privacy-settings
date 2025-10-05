@@ -1,2 +1,2 @@
-# evet-github-pagesi-direk-al-y-m-senden
+# privacy
 Gizlilik Politikası
